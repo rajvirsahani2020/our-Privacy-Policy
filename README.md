@@ -1,4 +1,4 @@
-# our-Privacy-Policy
+# Our-Privacy-Policy
 
 Privacy Policy for our Apps
 
